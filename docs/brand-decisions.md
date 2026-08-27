@@ -43,3 +43,22 @@ Current exploratory diCurrent exploratory diCurrent e- Industrial / angular
 - Aggressive
 - Technical
 - Hi- Hi- Hi- Hi- Hi- Hi- Hi-nguage should remain separate from AFTER HOURS rather than being forced into the same aesthetic.
+
+## AFTER HOURS — LIGHTS OUT TEE
+
+The LIGHTS OUT TEE is the first benchmark garment for AFTER HOURS Collection 001.
+
+Selected design direction:
+
+**03 — Late Shift Document**
+
+Status:
+
+- Concept direction approved
+- Layout approved for refinement
+- Production artwork pending
+- Physical sample pending
+
+The design uses a structured work-log aesthetic built around the collection statement:
+
+**WHEN THE LIGHTS GO OUT, WE KEEP HUSTLIN’.**
